@@ -1,5 +1,5 @@
 - 👋 Hey there! Name's Luis but I usually go by Eddie :)
-- 🌱 I’m a professional Translator and Interpreter
+- 🌱 I’m a professional Translator and Interpreter EN, JA > ES
 - 💞️ Looking to collaborate on translation projects into Spanish language
 - 📫 Contact me at luisedu.senman@gmail.com or Discord Eddie#0358
 
